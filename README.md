@@ -1,0 +1,4 @@
+dekadensia
+==========
+
+ke dekadensia,,,,,
